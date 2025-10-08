@@ -1,0 +1,1 @@
+# short_cut_key_for_MT5
